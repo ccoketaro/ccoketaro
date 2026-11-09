@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=News+Gothic&weight=600&duration=7000&pause=1000&color=A1CCE8A3&vCenter=true&width=440&height=60&lines=%E2%80%9C+we%E2%80%99ll+never+be+best+friends.+%E2%80%9C)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=500&duration=6000&pause=1000&color=C34B4BBD&center=true&width=435&lines=must+you+betray+me+with+a+kiss%3F)](https://git.io/typing-svg)
